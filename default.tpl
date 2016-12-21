@@ -1,0 +1,1 @@
+<strong>Standart page ;)</strong>
